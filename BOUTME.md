@@ -1,1 +1,2 @@
-Seeking for creativity
+seeking for creativity
+not a professional xd
